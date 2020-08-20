@@ -1,1 +1,1 @@
-# Replace this with your name, and include a header.
+# Like said, Here is a newbie. lol
